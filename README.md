@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @DriesGoudvis
-- 👀 I’m interested in unity and coding
-- 🌱 I’m currently learning unity and coding 
+- 👀 I’m interested in nothing
+- 🌱 I’m currently learning for nothing 
 - 💞️ I’m looking to collaborate on nothin lol
 - 📫 How to reach me: not
 
